@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on student
 - 📫 How to reach me gaspar20060408@gmail.com
 - 😄 Pronouns: siesta (is spanish)
-- ⚡ Fun fact: I Like WWII history about battleship
+- ⚡ Fun fact: I Like WWII history about battleship, and WWII history
 
 <!---
 siesta402202/siesta402202 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
